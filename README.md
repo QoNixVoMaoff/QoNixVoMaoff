@@ -60,6 +60,6 @@
                                                                                                         𝖉𝖊𝖒𝖔𝖓
                                         w̲r̲i̲t̲e̲ a̲b̲o̲u̲t̲ i̲t̲!
                                         
-( нᴇ ᴋонᴛᴀчиᴛь ᴨо ᴨоʙоду дᴩужбы ᴨᴩоᴄᴛо ᴛᴀᴋ )
+
 <img width="500" height="200" alt="gfto ru-gftoru-were-ruining-everything (2)" src="https://github.com/user-attachments/assets/c8727ecd-9368-4e31-adbe-77a5a128cb0a" />
 
