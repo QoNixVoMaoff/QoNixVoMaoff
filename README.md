@@ -1,12 +1,11 @@
-  <img width="200" height="139" alt="55ba5359a1f66a3270a31186092f91f0 (1)" src="https://github.com/user-attachments/assets/5a6da369-abd1-4753-a6ba-4ccac031d22a" />
+<img width="1280" height="568" alt="photo_2026-08-20_08-50-04" src="https://github.com/user-attachments/assets/14b682e6-5a89-49ea-a86b-d47674a71441" />
   
 
 
 
 
 
-
-                                                           𝒮𝒶𝓈𝒽𝒶/𝒮𝒶𝓃𝓎𝒶 
+                                                            
            ദ്ദി◝ ⩊ ◜.ᐟ     
            
                           𝟐𝟎𝟎𝟔.𝟎𝟕.𝟏𝟒                   ommggff                          ((
@@ -35,19 +34,32 @@
 
   <img width="20" height="20" alt="tumblr_37f5bb41110f147c9ad9aa1c6ad5e850_50993c06_75" src="https://github.com/user-attachments/assets/da4eeb90-b791-4c61-837c-a860cb81d2ff" />
                                           
-                                              ⳝⲗюⳅ - ⲩⲣⲁⲗ ⲅⲁύⲥυⲏ   
-
-                                           ⲟ_0 - ⲏⲟⲙⲉ4ⲥⲓrⲥυs                          
-                                         
-                                       ⲥⲧⲁⲗⲟ ⲡⲟⲭⲩύ - ⲕυrⲟⲕⲟᴠ, ⲙⲁⲣⲧ0ᴠ
-
-                                      я υⲥⲧⲉⲕⲁю ⲕⲣⲟⲃью - ⲩⲣⲁⲗ ⲅⲁύⲥυⲏ
+                                              fandoms: 𝙬𝙚𝙖𝙠 𝙝𝙚𝙧𝙤❟
+                                              𝙖𝙡𝙞𝙘𝙚 𝙞𝙣 𝙗𝙤𝙧𝙙𝙚𝙧𝙡𝙖𝙣𝙙 ❟
+                                              𝙨𝙦𝙪𝙞𝙙 𝙜𝙖𝙢𝙚❟
+                                              𝙈𝙇𝙋❟
+                                              𝙩𝙚𝙖𝙘𝙝 𝙮𝙤𝙪 𝙖 𝙡𝙚𝙨𝙨𝙤𝙣❟
+                                              𝙗𝙖𝙙 𝙖𝙣𝙙 𝙘𝙧𝙖𝙯𝙮❟ 
+                                              𝙞𝙛 𝙬𝙞𝙨𝙝𝙚𝙨 𝙘𝙤𝙪𝙡𝙙 𝙠𝙞𝙡𝙡❟
+                                              𝙨𝙥𝙤𝙤𝙠𝙮 𝙞𝙣 𝙡𝙤𝙫𝙚,
+                                              𝙬𝙖𝙩𝙚𝙧𝙢𝙚𝙡𝙤𝙣❟
+                                              𝙜𝙤𝙤𝙙 𝙗𝙤𝙮
+<img width="200" height="200" alt="negocinho-legau" src="https://github.com/user-attachments/assets/58147f22-b9cc-4f95-a73e-2db078a5868c" />
+<img width="200" height="200" alt="chiikawa" src="https://github.com/user-attachments/assets/8eb1ecea-2f4e-42e6-b0d8-b5eae06c4b69" />
 
                                          ʀᴀᴅɪᴏʜᴇᴀᴅ - ᴄʀᴇᴇᴘ         
 
                                          ɢɪꜰᴛ - ꜰʟɪᴘ ᴍʏ ᴡᴏʀʟᴅ
 
-                                                           weezer (group)
+
+
+  █▀▀ █▀█ █▀█ ▀█▀ █ █▀
+
+  █▄▄ █▄█ █▀▄ ░█░ █ ▄█
+  
+ <img width="200" height="200" alt="cortis-axtropluto" src="https://github.com/user-attachments/assets/fcfd3797-eeec-4af6-9249-051dff08a4cf" />
+<img width="182" height="200" alt="martin-cortis (1)" src="https://github.com/user-attachments/assets/4deb8d4b-812b-4747-8f6e-d64ce6c856f9" />
+
 
 
                                          𝒽𝑜𝒷𝒷𝓎: 𝓁𝑒𝒶𝓇𝓃𝒾𝓃𝑔 𝒿𝒶𝓅𝒶𝓃𝑒𝓈𝑒 𝒶𝓃𝒹 𝑒𝓃𝑔𝓁𝒾𝓈𝒽       (в основном не актив)                                                                                                                                                                             
@@ -60,5 +72,7 @@
                                         w̲r̲i̲t̲e̲ a̲b̲o̲u̲t̲ i̲t̲!
                                         
 
-<img width="500" height="200" alt="gfto ru-gftoru-were-ruining-everything (2)" src="https://github.com/user-attachments/assets/c8727ecd-9368-4e31-adbe-77a5a128cb0a" />
+<img width="1600" height="800" alt="image (1)" src="https://github.com/user-attachments/assets/6afff5c2-1522-4edc-8050-4c207d0e768b" />
+
+<img width="180" height="180" alt="spincat" src="https://github.com/user-attachments/assets/388ae402-9c98-43df-9539-b11ea6e42907" /><img width="200" height="200" alt="hachiware-bouncing-hachiware-jumping" src="https://github.com/user-attachments/assets/31115345-9db3-48ed-bf37-593563b57058" />
 
