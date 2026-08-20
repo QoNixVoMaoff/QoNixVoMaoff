@@ -49,7 +49,6 @@
 
                                                            weezer (group)
 
-<img width="288" height="143" alt="0445de1ad753c625ab6bde0f67d97c3f (1) (1) (1)" src="https://github.com/user-attachments/assets/d540ab54-ba46-4b1d-a031-a0b50769ac03" />
 
                                          𝒽𝑜𝒷𝒷𝓎: 𝓁𝑒𝒶𝓇𝓃𝒾𝓃𝑔 𝒿𝒶𝓅𝒶𝓃𝑒𝓈𝑒 𝒶𝓃𝒹 𝑒𝓃𝑔𝓁𝒾𝓈𝒽       (в основном не актив)                                                                                                                                                                             
 
