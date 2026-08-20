@@ -11,8 +11,12 @@
                           𝟐𝟎𝟎𝟔.𝟎𝟕.𝟏𝟒                   ommggff                          ((
               .
 
+<img width="220" height="204" alt="byeon-wooseok-heart" src="https://github.com/user-attachments/assets/511c0efd-1e99-44ff-b1cd-dbaf920eb3ae" />
 
-<img width="736" height="245" alt="1fa29c0ad6805b6130bb78f451f422f0" src="https://github.com/user-attachments/assets/388fb049-6e7a-486a-8361-e67939a2f288" />
+<img width="220" height="220" alt="byeon-woo-seok-wooseok" src="https://github.com/user-attachments/assets/284e95f9-0263-4aa5-8f64-eeada19f4d7e" />
+
+
+<img width="600" height="406" alt="bf991303774e208920fa71b865b758d9" src="https://github.com/user-attachments/assets/d95153c4-ebdc-4526-9741-3a58a7209358" />
 
                                                    
                                    𝒻𝒶𝓋𝑜𝓇𝒾𝓉𝑒 𝓈𝑜𝓃𝑔𝓈 𝑜𝓇 𝓉𝒽𝑜𝓈𝑒 𝓎𝑜𝓊 𝓁𝒾𝓀𝑒. ' 
